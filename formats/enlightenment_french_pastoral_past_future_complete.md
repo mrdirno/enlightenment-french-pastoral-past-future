@@ -2,7 +2,8 @@
 
 ## **CHAPTER 1**
 
-The Marquis de Launay’s new mechanical plough had cut a perfect, straight furrow for two hundred yards before its bronze tines struck the buried cornerstone of the old chapel. The serfs stopped, staring at the exposed sigil carved into the stone—not a cross, but a spiraling constellation no one had seen in the sky for three centuries.
+Marie-Antoinette’s bees knew nothing of revolution. They hummed their gold-threaded hymns between lavender and thyme, architects of a sweet, eternal geometry. Each hexagon held a future of honey, a past of sun-warmed pollen, a perfect kingdom contained within wax walls. The queen, heavy with destiny, moved through her fragrant court, unaware of the coming frost.
+
 
 
 Jean-Baptiste stood at the edge of the field, the wheat brushing his thighs, the scythe a forgotten weight in his hand. He had come to this same crest every morning for fifty years, first with his father’s sheep, then with his own eyes, to read the day in the languid, silver coil of the L’Aurence. It was a slow, polite river, given to philosophical meanders. It did not simply vanish.
